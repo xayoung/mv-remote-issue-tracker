@@ -46,4 +46,4 @@ Our App is not intended for use by children under the age of 13. We do not knowi
 We may update our Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page or within the App. You are advised to review this Privacy Policy periodically for any changes.
 
 ## 5. Contact Us
-If you have any questions about this Privacy Policy, please contact us at:xayoung01@gamil.com
+If you have any questions about this Privacy Policy, please contact us at:xayoung01@gmail.com

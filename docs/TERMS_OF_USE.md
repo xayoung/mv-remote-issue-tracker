@@ -71,8 +71,7 @@ These Terms shall be governed by and construed in accordance with the laws of th
 
 ## 11. Contact Us
 
-If you have any questions about these Terms, please contact us at:
-xayoung01@gmail.com
+If you have any questions about these Terms, please contact us at: xayoung01@gmail.com
 
 ---
 
